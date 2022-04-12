@@ -6,4 +6,3 @@ I love to think creatively, and solve problems, which is why I became a software
 - 👯 I’m looking to collaborate on open source projects.
 - 📫 How to reach me: [Email](mailto:alligerdavidj@gmail.com)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I co-authored a popular children's graphic novel series, The Cardboard Kingdom.
